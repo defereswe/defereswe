@@ -4,7 +4,7 @@ wre- 👋 Hi, I’m @defereswe
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...45545546fh6263
 - 😄 Pronouns: ...5885
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...gfs
 hll
 <!---fds
 defereswe/defereswe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
