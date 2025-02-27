@@ -3,7 +3,7 @@ hny,kj,62623dfgwre- 👋 Hi, I’m @defereswe62
 - 🌱 I’m currently learning ...asd
 - 💞️ I’m looking to collaborate on ...41114nfgrewewmjj262
 - 📫 How to reach me ...45545546fh626352wer23fss699vbnhzxvxzc69555962
-- 😄 Pronouns: ...5885656226zdvfe
+- 😄 Pronouns: ...5885656226zdvfedfg
 - ⚡ Fun fact: ...gfsio;54354125dffdfdf474785sdf
 - 323xcvxcsdf
 <!---fds45nghn
