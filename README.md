@@ -1,7 +1,7 @@
 fgfdsbhny,kj,62623dfgwre- 👋 Hi, I’m @defereswe62
 - 👀 I’m interested in ...ghhgnvcvxcxx
 - 🌱 I’m currently learning ...asd
-- 💞️ I’m looking to collaborate on ...41114nfgrewewmjj262dthffewdwgr969sdcsdcdcs6955бпоdscx 
+- 💞️ I’m looking to collaborate on ...41114nfgrewewmjj262dthffewdwgr969sdcsdcdcs6955бпоdscx bfbf
 - xfsddscvcv
 - 📫 How to reach me ...45545546fh626352wer23fss699vbnhzxvxzc69555962gerregerreaaahgnhgfgf
 - 😄 Pronouns: ...5885656226zdvfedfgddfxzxgdfvdsccxcxv
