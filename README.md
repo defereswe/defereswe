@@ -1,6 +1,6 @@
 sdfxcfgfdsbhny,kj,62623dfgwre- 👋 Hi, I’m @defereswe62wewss415292768854456545645
-- 🌱 I’m currently learning ...asd59562bvnhhnegregegrddgfd9*9669+bfgff
-- 💞️ I’m looking to collaborate on ...41114nfgrewewmjj262dthffewdwgr969sdcsdcdcs6955hjghjgghjghgvbnvbnvdf
+- 🌱 I’m currently learning ...asd59562bvnhhnegregegrddgfd9*9669+bfgff5435432
+- 💞️ I’m looking to collaborate on ...41114nfgrewewmjj262dthffewdwgr969sdcsdcdcs6955hjghjgghjghgvbnvbnvdf43554354
 - 😄 Pronouns: ...5885656226zdvfedfgddfxzxgdfvdsccxcxvhk,jutjfjtnbvbv
 - ⚡ Fun fact: ...gfsio;54354125dffdfdf474785sdfrhtrcvb4333khjhjkhkjhtrthgfjttjyjyt598989
 <!---fds45nghncxcxx
